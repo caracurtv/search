@@ -6,5 +6,5 @@
 Удачи...
 
 Автор: Моток Владимир
-mail: caracurt_v@mail.ru
+mail: motoc_vladimir@mail.ru
 
